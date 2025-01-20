@@ -1,2 +1,2 @@
 # Extracci-n-de-datos
-Repo solicitado en actividad 2
+Profe, le comente mi situacion y me indico agregar un comentario para el dia de la revision. Gracias.
